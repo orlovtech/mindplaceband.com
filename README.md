@@ -1,1 +1,0 @@
-# mindplaceband.com
